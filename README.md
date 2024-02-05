@@ -1,2 +1,2 @@
-# Community-Hub
-Share your insignts, ideas, seeks for supports, and latest news from us. All in one place.
+# RoboticPlus Community Hub is Here
+Share your insights, ideas, seeks for support, and latest news from us. All in one place.
